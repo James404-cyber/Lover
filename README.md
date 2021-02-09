@@ -5,10 +5,10 @@
 
 <h1 align="center"> |MR.JAMES|</h1>
 
-<h2 align="center">  ONLY PAKISTANI WITHOUT LOGIN FB CRACK  </h2>
+<h2 align="center">  ONLY BANGLADESHI WITHOUT LOGIN FB CRACK  </h2>
 
 <p align="center">
-      NO LOGIN ONLY PAKISTANI CRACK
+      NO LOGIN ONLY BANGLADESHI CRACK
 </p>
 
 
